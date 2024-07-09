@@ -1,1 +1,1 @@
-# AlifMZ25.github.io
+kuyuniversity-s1.WEB
